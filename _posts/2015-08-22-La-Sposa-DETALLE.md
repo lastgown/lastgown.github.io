@@ -1,0 +1,20 @@
+---
+layout: post
+date: '2015-08-22'
+title: "La Sposa DETALLE ()"
+category: La Sposa
+tags: [La Sposa]
+---
+### La Sposa DETALLE ()
+Just **$326.99**
+### 
+
+<strong>Saison</strong>2014
+<strong>Collection</strong>Glamour
+<strong>Modèle</strong>DETALLE
+<strong>Coupe</strong>Coupe ?vasée
+<strong>Décolleté</strong>Décolleté coeur
+<a href="http://www.toutrobes.fr/robes-de-mariee-la-sposa/5494-detalle-la-sposa.html"><img src="//img.toutrobes.fr/8507-thickbox_default/detalle-la-sposa.jpg" alt="DETALLE   (La Sposa)" style="width:100%;" /></a>
+
+<!-- break -->
+Buy it: [http://www.toutrobes.fr/robes-de-mariee-la-sposa/5494-detalle-la-sposa.html](http://www.toutrobes.fr/robes-de-mariee-la-sposa/5494-detalle-la-sposa.html)

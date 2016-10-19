@@ -1,0 +1,20 @@
+---
+layout: post
+date: '2016-06-17'
+title: "Pronuptia Roussel ()"
+category: Pronuptia
+tags: [Pronuptia]
+---
+### Pronuptia Roussel ()
+Just **$371.99**
+### 
+
+<strong>Saison</strong>2015
+<strong>Modèle</strong>Roussel
+<strong>Coupe</strong>Coupe ?vasée
+<strong>Décolleté</strong>Décolleté carré
+<strong>Longueur</strong>Long
+<a href="http://www.toutrobes.fr/robes-de-mariee-pronuptia/2028-roussel-pronuptia.html"><img src="//img.toutrobes.fr/3481-thickbox_default/roussel-pronuptia.jpg" alt="Roussel (Pronuptia)" style="width:100%;" /></a>
+
+<!-- break -->
+Buy it: [http://www.toutrobes.fr/robes-de-mariee-pronuptia/2028-roussel-pronuptia.html](http://www.toutrobes.fr/robes-de-mariee-pronuptia/2028-roussel-pronuptia.html)

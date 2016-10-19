@@ -1,0 +1,31 @@
+---
+layout: post
+date: '2015-10-11'
+title: "Stella York 6106 main zoom ()"
+category: Stella York
+tags: [Stella York]
+---
+### Stella York 6106 main zoom ()
+Just **$339.99**
+### 
+
+
+<strong>Saison</strong>2015
+
+
+<strong>Modèle</strong>6106 main zoom
+
+
+<strong>Coupe</strong>Coupe Sirène
+
+
+<strong>Décolleté</strong>Décolleté en V
+
+
+<strong>Longueur</strong>Long
+
+
+<a href="http://www.toutrobes.fr/robes-de-mariee-stella-york/2316-6106-main-zoom-stella-york.html"><img src="//img.toutrobes.fr/3860-thickbox_default/6106-main-zoom-stella-york.jpg" alt="6106 main zoom (Stella York)" style="width:100%;" /></a>
+
+<!-- break -->
+Buy it: [http://www.toutrobes.fr/robes-de-mariee-stella-york/2316-6106-main-zoom-stella-york.html](http://www.toutrobes.fr/robes-de-mariee-stella-york/2316-6106-main-zoom-stella-york.html)

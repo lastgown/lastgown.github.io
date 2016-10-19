@@ -1,0 +1,19 @@
+---
+layout: post
+date: '2016-09-13'
+title: "Elianna Moore EM 1218 A ()"
+category: Elianna Moore
+tags: [Elianna Moore]
+---
+### Elianna Moore EM 1218 A ()
+Just **$348.99**
+### 
+
+<strong>Saison</strong>2014
+<strong>Modèle</strong>EM 1218 A
+<strong>Coupe</strong>Coupe ?vasée
+<strong>Décolleté</strong>Autres
+<a href="http://www.toutrobes.fr/robes-de-mariee-elianna-moore/4268-em-1218-a-elianna-moore.html"><img src="//img.toutrobes.fr/6990-thickbox_default/em-1218-a-elianna-moore.jpg" alt="EM 1218 A (Elianna Moore)" style="width:100%;" /></a>
+
+<!-- break -->
+Buy it: [http://www.toutrobes.fr/robes-de-mariee-elianna-moore/4268-em-1218-a-elianna-moore.html](http://www.toutrobes.fr/robes-de-mariee-elianna-moore/4268-em-1218-a-elianna-moore.html)

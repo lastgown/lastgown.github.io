@@ -1,0 +1,20 @@
+---
+layout: post
+date: '2015-12-02'
+title: "Les Mariées de Provence MAGNOLIA ()"
+category: Les Mariées de Provence
+tags: [Les Mariées de Provence]
+---
+### Les Mariées de Provence MAGNOLIA ()
+Just **$330.99**
+### 
+
+<strong>Saison</strong>2014
+<strong>Collection</strong>Fra?cheur &amp; Simplicité
+<strong>Modèle</strong>MAGNOLIA
+<strong>Coupe</strong>Coupe ?vasée
+<strong>Décolleté</strong>Bustier
+<a href="http://www.toutrobes.fr/robes-de-mariee-les-mariees-de-provence/5596-magnolia-les-mariees-de-provence.html"><img src="//img.toutrobes.fr/8609-thickbox_default/magnolia-les-mariees-de-provence.jpg" alt="MAGNOLIA (Les Mariées de Provence)" style="width:100%;" /></a>
+
+<!-- break -->
+Buy it: [http://www.toutrobes.fr/robes-de-mariee-les-mariees-de-provence/5596-magnolia-les-mariees-de-provence.html](http://www.toutrobes.fr/robes-de-mariee-les-mariees-de-provence/5596-magnolia-les-mariees-de-provence.html)
