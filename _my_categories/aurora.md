@@ -1,4 +1,0 @@
----
-slug: aurora
-name: Aurora
----

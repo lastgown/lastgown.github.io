@@ -1,4 +1,0 @@
----
-slug: blumarine
-name: Blumarine
----

@@ -1,4 +1,0 @@
----
-slug: cabotine
-name: Cabotine
----

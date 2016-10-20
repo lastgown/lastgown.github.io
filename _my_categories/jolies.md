@@ -1,4 +1,0 @@
----
-slug: jolies
-name: Jolies
----

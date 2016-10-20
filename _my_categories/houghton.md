@@ -1,4 +1,0 @@
----
-slug: houghton
-name: Houghton
----

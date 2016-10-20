@@ -1,4 +1,0 @@
----
-slug: collector
-name: Collector
----

@@ -1,4 +1,0 @@
----
-slug: noviamor
-name: Noviamor
----

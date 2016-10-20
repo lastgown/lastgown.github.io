@@ -1,4 +1,0 @@
----
-slug: nicole
-name: Nicole
----

@@ -1,4 +1,0 @@
----
-slug: cosmobella
-name: Cosmobella
----

@@ -1,4 +1,0 @@
----
-slug: modelatti
-name: Modelatti
----

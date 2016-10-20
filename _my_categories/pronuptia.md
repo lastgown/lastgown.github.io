@@ -1,4 +1,0 @@
----
-slug: pronuptia
-name: Pronuptia
----

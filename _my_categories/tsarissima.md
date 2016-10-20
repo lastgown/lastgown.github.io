@@ -1,4 +1,0 @@
----
-slug: tsarissima
-name: Tsarissima
----

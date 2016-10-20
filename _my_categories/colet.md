@@ -1,4 +1,0 @@
----
-slug: colet
-name: Colet
----

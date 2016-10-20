@@ -1,4 +1,0 @@
----
-slug: whiteday
-name: WhiteDay
----

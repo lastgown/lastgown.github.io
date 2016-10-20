@@ -1,4 +1,0 @@
----
-slug: pronovias
-name: Pronovias
----

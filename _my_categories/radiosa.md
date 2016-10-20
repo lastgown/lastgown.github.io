@@ -1,4 +1,0 @@
----
-slug: radiosa
-name: Radiosa
----
