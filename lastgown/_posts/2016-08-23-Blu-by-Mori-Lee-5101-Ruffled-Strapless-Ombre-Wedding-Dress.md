@@ -1,0 +1,19 @@
+---
+layout: post
+date: '2016-08-23'
+title: "Blu by Mori Lee 5101 Ruffled Strapless Ombre Wedding Dress"
+category: Blu by Mori Lee
+tags: [Blu by Mori Lee]
+---
+### Blu by Mori Lee 5101 Ruffled Strapless Ombre Wedding Dress
+Just **$358.99**
+### 
+
+<p class="dress-description content ">Ruffled organza</p>
+<a href="https://www.eudances.com/en/blu-by-mori-lee/2637-blu-by-mori-lee-5101-ruffled-strapless-ombre-wedding-dress.html"><img src="//www.eudances.com/7345-thickbox_default/blu-by-mori-lee-5101-ruffled-strapless-ombre-wedding-dress.jpg" alt="Blu by Mori Lee 5101 Ruffled Strapless Ombre Wedding Dress" style="width:100%;" /></a>
+
+<!-- break --><a href="https://www.eudances.com/en/blu-by-mori-lee/2637-blu-by-mori-lee-5101-ruffled-strapless-ombre-wedding-dress.html"><img src="//www.eudances.com/7346-thickbox_default/blu-by-mori-lee-5101-ruffled-strapless-ombre-wedding-dress.jpg" alt="Blu by Mori Lee 5101 Ruffled Strapless Ombre Wedding Dress" style="width:100%;" /></a>
+<a href="https://www.eudances.com/en/blu-by-mori-lee/2637-blu-by-mori-lee-5101-ruffled-strapless-ombre-wedding-dress.html"><img src="//www.eudances.com/7347-thickbox_default/blu-by-mori-lee-5101-ruffled-strapless-ombre-wedding-dress.jpg" alt="Blu by Mori Lee 5101 Ruffled Strapless Ombre Wedding Dress" style="width:100%;" /></a>
+<a href="https://www.eudances.com/en/blu-by-mori-lee/2637-blu-by-mori-lee-5101-ruffled-strapless-ombre-wedding-dress.html"><img src="//www.eudances.com/7348-thickbox_default/blu-by-mori-lee-5101-ruffled-strapless-ombre-wedding-dress.jpg" alt="Blu by Mori Lee 5101 Ruffled Strapless Ombre Wedding Dress" style="width:100%;" /></a>
+<a href="https://www.eudances.com/en/blu-by-mori-lee/2637-blu-by-mori-lee-5101-ruffled-strapless-ombre-wedding-dress.html"><img src="//www.eudances.com/7344-thickbox_default/blu-by-mori-lee-5101-ruffled-strapless-ombre-wedding-dress.jpg" alt="Blu by Mori Lee 5101 Ruffled Strapless Ombre Wedding Dress" style="width:100%;" /></a>
+Buy it: [https://www.eudances.com/en/blu-by-mori-lee/2637-blu-by-mori-lee-5101-ruffled-strapless-ombre-wedding-dress.html](https://www.eudances.com/en/blu-by-mori-lee/2637-blu-by-mori-lee-5101-ruffled-strapless-ombre-wedding-dress.html)
