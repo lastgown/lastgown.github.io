@@ -1,4 +1,0 @@
----
-slug: dfi
-name: DFI
----

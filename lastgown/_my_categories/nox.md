@@ -1,4 +1,0 @@
----
-slug: nox
-name: Nox
----

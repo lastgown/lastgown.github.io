@@ -1,4 +1,0 @@
----
-slug: allure
-name: Allure 
----

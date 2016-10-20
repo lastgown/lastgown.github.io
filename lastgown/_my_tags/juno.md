@@ -1,4 +1,0 @@
----
-slug: juno
-name: Juno
----

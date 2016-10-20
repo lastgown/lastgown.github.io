@@ -1,4 +1,0 @@
----
-slug: juliet
-name: Juliet
----

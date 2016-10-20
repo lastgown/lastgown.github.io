@@ -1,4 +1,0 @@
----
-slug: tank
-name: TANK
----
